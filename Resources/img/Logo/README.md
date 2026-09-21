@@ -1,0 +1,1 @@
+# SIP3 RES IMG LOGO
